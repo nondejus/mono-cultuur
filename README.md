@@ -1,2 +1,0 @@
-# mono-cultuur
-schizofrene media
